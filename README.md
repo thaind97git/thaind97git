@@ -2,7 +2,7 @@
   
 ### DEV 👋
 
-![](https://64.media.tumblr.com/16dd14cdfe44aa04eff6631e77011526/tumblr_nllmvfQvgj1uqlfk4o1_500.gifv)
+![](https://64.media.tumblr.com/16dd14cdfe44aa04eff6631e77011526/tumblr_nllmvfQvgj1uqlfk4o1_500.gif)
 ---
 
 <i>About me:</i><br>
