@@ -2,7 +2,7 @@
   
 ### DEV 👋
 
-![](https://innov8tiv.com/wp-content/uploads/2015/02/life-of-programmer-1.gif)
+![](https://64.media.tumblr.com/16dd14cdfe44aa04eff6631e77011526/tumblr_nllmvfQvgj1uqlfk4o1_500.gifv)
 ---
 
 <i>About me:</i><br>
